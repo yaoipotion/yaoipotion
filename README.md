@@ -1,9 +1,7 @@
-![](https://media.discordapp.net/attachments/864518496930758666/1246373178402537534/Untitled52_20240601173151.png?ex=665c26fa&is=665ad57a&hm=c0340bf9d525e9ab72cc28cb6a783d8ae5aade93a7fcf44c9ed70b228a165b55&=&format=webp&quality=lossless) 
+ ![](https://64.media.tumblr.com/1ea4c4cdb706dcb3c79f7704b753d1f8/cf12192496fe029d-7e/s400x600/0f582d113f3d2a8b55ea03f5ef4d0c4c5e8bfbaa.jpg)
 
-call me isaac or kai ★　w2i + c/h ok,
+call me isaac or kai ★　
 
-︶⏝︶⏝︶⊹︶⏝︶୨୧︶⏝︶⊹︶⏝︶⏝︶
+dni if **dsmp**, **southpark**, -13 or 18+, tutorial skin.
 
-usually by docks or above markets.
-
-dni if dsmp/sp skin & read my [rentry](https://rentry.co/yaoipotion)
+[rentry](https://rentry.co/yaoipotion) + [carrd](https://moa.crd.co)
