@@ -1,9 +1,15 @@
-![](https://komarev.com/ghpvc/?username=yaoipotion)
 
- ![](https://64.media.tumblr.com/1ea4c4cdb706dcb3c79f7704b753d1f8/cf12192496fe029d-7e/s400x600/0f582d113f3d2a8b55ea03f5ef4d0c4c5e8bfbaa.jpg)
 
-call me isaac or kai ★　
+<p align="center">
+  <img width="660" height="300" src="https://64.media.tumblr.com/e08c090039f4cad7528a2e4ef81195a4/2cef9517ec45b2dd-0a/s2048x3072/e5eddbf11c58a03f0cb4d5318b83a965925c8aa3.jpg">
+</p>
 
-dni if **dsmp**, **southpark**, -13 or 18+, tutorial skin.
+<p align="center">
+SINKIN MY TEETH IN YA　★ <br> you can call me isaac or kai, (he/him) or you can call me by whatever pony <br> i am if that's easier for you. <br> ⊃♡⊂　i block/hide freely, no dni just don't be a creep/basic crit. 
+</p>
+
 
 [rentry](https://rentry.co/yaoipotion) + [carrd](https://moa.crd.co)
+
+![](https://komarev.com/ghpvc/?username=yaoipotion)
+
