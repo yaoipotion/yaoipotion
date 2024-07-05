@@ -1,5 +1,5 @@
 <p align="center">
-  SIGN MY ATABOOK!
+  ✦⁺彡　（　SIGN MY ATABOOK!　）<br>　╰　︶︶　♫﹕　越要快乐 越要破溃
 </p>
 
 <p align="center">
@@ -7,11 +7,8 @@
 </p>
 
 <p align="center">
-just a rock, okay?　★ <br> you can call me isaac or kai, (he/him) or you can call me by whatever pony <br> i am if that's easier for you.  i only give out socials if i rlly like you! <br> ⊃♡⊂　i block/hide freely, no dni just don't be a creep/basic crit. 
+（　☆︶︶　　是是非非 别再意会　⟡⎯　）<br>　╰　★　⸻　isaac or kai　ෆ　more names in <u> prns.page </u>　≧◡≦　<br> ㅤׂ︵︵︵︵ 𓈒  ✿  𓈒 ︵︵︵︵ㅤׂ or you can call me by the pony i am <br> 　 <br>　（　i block/hide freely　） don't be a creep/basic crit　﹕　hehim <br>　╰　᧔♡᧓　https://rentry.co/yaoipotion + https://moa.crd.co
 </p>
-
-
-[rentry](https://rentry.co/yaoipotion) + [carrd](https://moa.crd.co)
 
 ![](https://komarev.com/ghpvc/?username=yaoipotion)
 
