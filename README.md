@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <img width="310" height="50" src="https://i.imgur.com/FYhS0Lk.gif"> <br> <img width="300" height="300" src="https://cdn.discordapp.com/attachments/1241248741739073618/1258826629195632761/VideoStar.gif?ex=66897528&is=668823a8&hm=5593294633db79fa539be480715ab30fa4bdbd5d5c60408bf4790947c1283325&"> <br> ᐢ..ᐢ　<a href="https://github.com/johnmarstons" target="_blank">@johnmarstons</a>　♡
+  <img width="310" height="50" src="https://i.imgur.com/FYhS0Lk.gif"> <br> <img width="300" height="300" src="https://cdn.discordapp.com/attachments/1241248741739073618/1258826629195632761/VideoStar.gif?ex=66897528&is=668823a8&hm=5593294633db79fa539be480715ab30fa4bdbd5d5c60408bf4790947c1283325&"> <br> ᐢ..ᐢ　<a href="https://github.com/johnmarstons" target="_blank">@johnmarstons</a>　♡　<a href="https://github.com/istjaemin" target="_blank">@istjaemin</a>
 </p>
 
 <p align="center">
