@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-（　☆︶︶　　是是非非 别再意会　⟡⎯　）<br>　╰　★　⸻　isaac or kai　ෆ<br>　more names in <u> prns.page </u>　≧◡≦　<br> ㅤׂ︵︵︵︵ 𓈒  ✿  𓈒 ︵︵︵︵ㅤׂ <br>or you can call me by the pony i am <br> 　 <br>　（　i block/hide freely　）<br> don't be a creep/basic crit　﹕　hehim <br>　╰　᧔♡᧓　https://rentry.co/yaoipotion <br>ㅤ https://nanami.ju.mp <br>ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ https://en.pronouns.page/@Ioser
+（　☆︶︶　　是是非非 别再意会　⟡⎯　）<br>　╰　★　⸻　isaac or kai　ෆ<br>　more names in <u> prns.page </u>　≧◡≦　<br> ㅤׂ︵︵︵︵ 𓈒  ✿  𓈒 ︵︵︵︵ㅤׂ <br>or you can call me by the pony i am <br> 　 <br>　（　i block/hide freely　）<br> don't be a creep/basic crit　﹕　hehim <br>　╰　᧔♡᧓　https://rentry.co/yaoipotion <br>ㅤ ㅤhttps://nanami.ju.mp <br>ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ https://en.pronouns.page/@Ioser
 </p>
 
 
